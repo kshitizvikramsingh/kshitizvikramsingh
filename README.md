@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kshitizvikramsingh
-- 👀 I’m interested in gaming and coding...
-- 🌱 I’m currently learning Socket.io
+- 👀 I’m interested in gaming...
+- 🌱 I’m currently learning something!
 - 📫 How to reach me ->
   TWITTER:-  https://twitter.com/KshitizVikramSi
   LINKEDIN:- https://www.linkedin.com/in/kshitiz-vikram-singh/
