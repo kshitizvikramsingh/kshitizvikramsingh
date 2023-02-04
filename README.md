@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kshitizvikramsingh
-- 👀 I like to play vido games...
+- 👀 I like to play video games...
 - 🌱 I’m currently learning something!
 - 📫 How to reach me ->
   INSTA:- htps://instagram.com/ktz_vs
