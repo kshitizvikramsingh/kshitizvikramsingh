@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @kshitizvikramsingh
-- 👀 I’m interested in gaming...
+- 👀 I like to play vido games...
 - 🌱 I’m currently learning something!
 - 📫 How to reach me ->
-  TWITTER:-  https://twitter.com/KshitizVikramSi
+  INSTA:- htps://instagram.com/ktz_vs
   LINKEDIN:- https://www.linkedin.com/in/kshitiz-vikram-singh/
   
   
