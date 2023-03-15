@@ -2,8 +2,8 @@
 - 👀 I like to play video games...
 - 🌱 I’m currently learning something!
 - 📫 How to reach me ->
-  INSTA:- htps://instagram.com/ktz_vs
-  LINKEDIN:- https://www.linkedin.com/in/kshitiz-vikram-singh/
+  INSTA:- https://instagram.com/ktz_vs
+  TWITTER:- https://twitter.com/KshitizVikramSi
   
   Problem repository:
   
